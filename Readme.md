@@ -1,6 +1,4 @@
-# FCC[Fight Club CET] Notepad
-
-You can click on links to open the clan in COC App
+_You can click on links to open the clan in COC App_
 
 ### War Clans
 > Main Clan - [Fight Club CET](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#PP0YPJL2) - Join for Serious Wars.  
@@ -15,3 +13,4 @@ You can click on links to open the clan in COC App
 > [Turbo](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#292QRGCUG).  
   [Cetianz](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#Q2YUV9CJ).  
 
+Join us in [Whatsapp Group](https://chat.whatsapp.com/EeZ8MdJnLyAJaVD7suoo3y)
