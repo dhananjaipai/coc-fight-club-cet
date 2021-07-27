@@ -13,4 +13,25 @@ _You can click on links to open the clan in COC App_
 > [Turbo](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#292QRGCUG).  
   [Cetianz](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#Q2YUV9CJ).  
 
-Join us in [Whatsapp Group](https://chat.whatsapp.com/EeZ8MdJnLyAJaVD7suoo3y)
+## CWL Squad Rotation (to be updated)
+
+| War # | 1             | 2 | 3 | 4 | 5 | 6 | 7 |
+|-------|---------------|---|---|---|---|---|---|
+| 1     | God           |   |   |   |   |   |   |
+| 2     | Aanakkallan   |   |   |   |   |   |   |
+| 3     | Heaven        |   |   |   |   |   |   |
+| 4     | Hector        |   |   |   |   |   |   |
+| 5     | Knight        |   |   |   |   |   |   |
+| 6     | pardes safi   |   |   |   |   |   |   |
+| 7     | Rockstar      |   |   |   |   |   |   |
+| 8     | zephyr        |   |   |   |   |   |   |
+| 9     | pai           |   |   |   |   |   |   |
+| 10    | Optimus Prime |   |   |   |   |   |   |
+| 11    | Tahweed Safi  |   |   |   |   |   |   |
+| 12    | sree          |   |   |   |   |   |   |
+| 13    | APPU          |   |   |   |   |   |   |
+| 14    | KAI           |   |   |   |   |   |   |
+| 15    | MONSTER B     |   |   |   |   |   |   |
+
+
+Join us in [Whatsapp](https://chat.whatsapp.com/EeZ8MdJnLyAJaVD7suoo3y)
