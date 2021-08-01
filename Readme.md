@@ -14,6 +14,7 @@ _You can click on links to open the clan in COC App_
   [Cetianz](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#Q2YUV9CJ).  
 
 ## CWL Squad Rotation
+
 | Player# | Day 1            | Day 2            | Day 3            | Day 4            | Day 5          | Day 6          | Day 7                 |
 | ------- | ---------------- | ---------------- | ---------------- | ---------------- | -------------- | -------------- | --------------------- |
 | 1       | Heaven (1)       | Heaven (2)       | Heaven (3)       | Fili (1)         | Fili (2)       | Fili (3)       | Fili (4)              |
@@ -30,7 +31,7 @@ _You can click on links to open the clan in COC App_
 | 12      | Tahweed (1)      | Tahweed (2)      | Tahweed (3)      | KIDD (4)         | Abhi (2)       | Abhi (3)       | Abhi (4)              |
 | 13      | Winter Squad (1) | Winter Squad (2) | Winter Squad (3) | Winter Squad (4) | Sambhu (2)     | Sambhu (3)     | Sambhu (4)            |
 | 14      | Sree (1)         | Phenominal (1)   | Abhi (1)         | pardes safi (4)  | Hector (4)     | Optimus (4)    | Zephyr (4)            |
-| 15      | Appu (1)         | Monster B (1)    | Sambhu (1)       | Tahweed (4)      | Rockstar (4)   | Pai (4)        | \--- 1 slot extra --- |
+| 15      | Appu (1)         | Monster B (1)    | Sambhu (1)       | Tahweed (4)      | Rockstar (4)   | Pai (4)        | xxx                   |
 
 
 Join us in [Whatsapp](https://chat.whatsapp.com/EeZ8MdJnLyAJaVD7suoo3y)
