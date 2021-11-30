@@ -1,7 +1,7 @@
 _You can click on links to open the clan in COC App_
 
 ### CWL Clans  
-  Master  League 1 (Dec 2021 Main  | TH14) - [TASK FORCE](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2YULYCOOU).  
+  Master  League 1 (Dec 2021 Main  | TH14) - [SQUID GAME](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QQ2L82G8).  
   Master  League 2 (Dec 2021 Mini  | TH13) - [XiaolinShowdown](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LUYUPG2P).  
   Master  League 3 (Dec 2021 Other | TH11) - [WinterIsComing](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LU09YU20).  
   
