@@ -1,5 +1,7 @@
 _You can click on links to open the clan in COC App_
 
+Open [eSports Page](./eSports.md)
+
 ### CWL Clans  
   Master  League 1 (Feb 2022 Main   | TH14) - [Clash Gods](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2YGLUYVY0).  
   Master  League 2 (Feb 2022 Mini   | TH13) - [HAPPY NEW YEAR](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2Q92GQVGU).  
