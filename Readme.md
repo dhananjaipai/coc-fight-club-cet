@@ -17,9 +17,10 @@ Open [eSports Page](./eSports.md)
 
 ### War Clans
   Main Clan - [Fight Club CET](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#PP0YPJL2) - Inactive.  
-  Alliance Clan - [Cetianz](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#Q2YUV9CJ) - Inactive.  
+  Mini Clan - [FCC-2](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#290R2Q8LP) - Inactive.  
+  Alliance Clan - [Indian Tiger](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QLR2CRLV) - Join for Casual Wars.  
   Alliance Clan - [Turbo](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#292QRGCUG) - Join for Wars.  
-  Mini Clan - [FCC-2](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#290R2Q8LP) - Join for Casual Wars.  
+  Alliance Clan - [Cetianz](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#Q2YUV9CJ) - Inactive.  
 
 ## CWL Squad Rotation
 TBD
