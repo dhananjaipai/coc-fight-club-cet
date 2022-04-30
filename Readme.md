@@ -3,7 +3,7 @@ _You can click on links to open the clan in COC App_
 Open [eSports Page](./eSports.md)
 
 ### CWL Clans  
-  Master  League 1 (May 2022 Main | TH14) - [Clash Peak]
+  Master  League 1 (May 2022 Main | TH14) - [Raid Capital](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QPC9GV98).  
   Master  League 2 (May 2022 Mini | TH13+) - [PeacePlease](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LRLQGGGY).  
   
   
