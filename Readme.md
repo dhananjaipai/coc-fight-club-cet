@@ -3,17 +3,19 @@ _You can click on links to open the clan in COC App_
 Open [eSports Page](./eSports.md)
 
 ### CWL Clans  
-  Master  League 1 (Mar 2022 Main | TH14) - [PeacePlease](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LRLQGGGY).  
-  Master  League 2 (Mar 2022 Mini | TH13) - [HAPPY NEW YEAR](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2Q92GQVGU).  
-  Master  League 3 (Mar 2022 Other) - [CWL Alliance](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2P92PP82L).  
+  Master  League 1 (May 2022 Main | TH14) - [Clash Peak]
+  Master  League 2 (May 2022 Mini | TH13+) - [PeacePlease](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LRLQGGGY).  
+  
   
   Master  League 1 (Archived) - [Clash Gods](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2YGLUYVY0).  
+  Master  League 3 (Archived) - [HAPPY NEW YEAR](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2Q92GQVGU).  
   Crystal League 1 (Archived) - [Get Set WAR](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2PCRU82VU).  
   Crystal League 1 (Gave Away) - [No Way Home <>](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LRULJQRQ).  
   Crystal League 1 (Gave Away) - [WinterIsComing](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LU09YU20).  
   Crystal League 1 (Gave Away) - [XiaolinShowdown](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LUYUPG2P).  
   Crystal League 1 (Gave Away) - [League Legends](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2L8GPUJ0C).  
   Crystal League 1 (Deleted) - [SQUID GAME](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QQ2L82G8).  
+  Crystal League 1 (Deleted) - [CWL Alliance](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2P92PP82L).  
 
 ### War Clans
   Main Clan - [Fight Club CET](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#PP0YPJL2) - Inactive.  
