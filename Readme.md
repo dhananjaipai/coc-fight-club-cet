@@ -3,8 +3,10 @@ _You can click on links to open the clan in COC App_
 Open [eSports Page](./eSports.md)
 
 ### CWL Clans  
-  Master  League 1 (May 2022 Main | TH14) - [Raid Capital](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QPC9GV98).  
-  Master  League 2 (May 2022 Mini | TH13+) - [PeacePlease](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2LRLQGGGY).  
+
+  Master  League 1 (July 2022 Main | Th14) - [Summoning Jutsu](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2L92PRLQG).  
+  Master  League 1 (July 2022 Mini) - [#Justice4Johnny](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2Q8GLJL2U).  
+  Master  League 1 (July 2022 Mini) - [Raid Capital](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2QPC9GV98).  
   
   
   Master  League 1 (Archived) - [Clash Gods](https://link.clashofclans.com/en?action=OpenClanProfile&tag=#2YGLUYVY0).  
